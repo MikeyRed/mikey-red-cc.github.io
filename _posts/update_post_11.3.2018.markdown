@@ -1,0 +1,1 @@
+Update! Life got a little hectic with graduting college, traveling to Ireland, and starting work full time with IBM. I have so many new experiences to share with you all. Big updates to the site coming soon so stay tuned!
