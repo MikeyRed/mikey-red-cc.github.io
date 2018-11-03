@@ -9,4 +9,4 @@ built and I'm `happy` to share this experience with you.  It started off as a
 side project to see if I could `teach` myself a new language.  One lesson led to
 another until I found myself here at this point.  I want to continue my learning
 and use this website as my canvas to demonstrate my knowledge.  Who knows what
-will come next!
+will come nxt!
